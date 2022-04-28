@@ -1,1 +1,1 @@
-## SustainFund
+Zero Overhead Philanthropy. BE a human. BE a problem solver. EMBODY genuine compassion. Give yourself to eliminating problems rather than fundraising or practicing idiot compassion.

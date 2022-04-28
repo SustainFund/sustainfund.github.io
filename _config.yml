@@ -1,1 +1,9 @@
-theme: jekyll-theme-minimal
+# Site settings
+title: SustainFund
+email: nanotoolworks@gmail.com
+description: Zero Overhead Philanthropy. BE a human. BE a problem solver. EMBODY genuine compassion. Give yourself to eliminating problems rather than fundraising or practicing idiot compassion.
+twitter_username: sustainfund
+github_username:  sustainfund
+
+# Build settings
+markdown: kramdown
