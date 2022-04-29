@@ -1,17 +1,23 @@
+# SUSTAIN IMPROVEMENT 
+
+Need less. Constantly improve to reduce footprint. Eliminate vulnerabilities and excess baggage.
+
+Exercise DISCIPLINE to eliminate needs, to become a tougher example of FREEDOM. You are alive NOW, so behave like you are on a date with NOW with an objective to fall in love with NOW. Commit to enjoying NOW; the only thing that NOW wants from you is for you to be more able to love NOW tomorrow. 
+
+Loving NOW is a matter of discipline.
+
+* ***EACH second of NOW in each 86400 second day must improve the DISCIPLINE of each following second of NOW.***
+
+* ***Instill CONTINUOUS COMPOUNDING discipline by multitasking, yet focusing on this NOWNESS of personal improvement.*** 
+
+In the end, it is the **DISCIPLINE** of *sustained improvement* which **equals FREEDOM** ... there is no other path to freedom. You can never buy freedom or give it to others. There are addictive materialist illusions of freedom, there is no substitute for not needing anything. 
+
 # Zero Overhead Philanthropy
 
-*BE a human. BE a problem solver. EMBODY genuine compassion ... give yourself to eliminating problems rather than fundraising to fund perpetual fundraising or practicing idiot compassion.*
+Funding is seldom the answer to any problem. Refuse to enable fundraisers that are perpetually fundraising in fund perpetual fundraising. Don't give in to guilt or ego; keep your powder dry. Conserve your capital for the cases in which you can ensure that capital matters -- until then, invest wisely. Don't worry, the needs will expand to consume any amount of capital. 
 
+But when some problem really matters to the point where it becomes your WHY, then ***GIVE EVERYTHING -- GIVE ALL YOUR TIME***
 
-The FACTS are that most charity is a delusion. Almost everything that drives checkbook charity and the use of guilt to contribute to charities is that most [if not almost ALL] philanthropies are nothing but fundraising organizations that raise funds in order to raise funds in order to sustain the perpetuation of the fundraising organization.  Other organizations are actually ineffective because the cure cuts off funding for the philanthropy. There are reasons to suspect why this might be true of much of the funding for elimination of cancer, heart disease, diabetes/insulin resistance, for example.
+Until then, *stop kidding yourself that writing checks or practicing idiot compassion will fix anything.* 
 
-Therefore, this Github *organization* known as SustainFund is a curated collection of repositories of curated lists and resources exist as proof that of #NoOverhead venture philanthropies can sponsor and maintain funding to sustain efforts to find root causes of problems so that the problem can be eliminated sustainably, forever.
-
-
-Needs are real, if you see someone who needs a sandwich, make them a sandwich and talk with them -- don't donate to an organization that funds operations which might buy professional services which just throw wastefood sandwiches at people who have problems that will cause them to always need more sandwiches -- almost of all the money you give ends up funding virtue signallers and almost nothing actually gets the hungry person the sandwich. ***Don't fund the perpetuation of misery.***
-
-If it were not obvious ... there's absolutely NO MONEY in SustainFund. This open source curated collections of repositories prove that money is generally UNNECESSARY ... if you want to help someone, ***then just roll up your sleeves and HELP someone human-to-human*** -- don't write a check or text #BullshitConsciousClearing to BullshitConsciousClearning.com ... 
-
-If something really matters, then ***GIVE YOUR TIME***, give your inspired intellect, give your mind, give your ideas ... *give a legitimate shit DAILY* ... thoroughly **give YOURSELF** to directly, personally sustaining the ELIMINATION of the problem. Or stop pretending.
-
-
+If you actually care, then ***EMBODY genuine compassion.*** become engaged as a disciplined human ... not just a problem solver gadget or machine, but a caring, compassionate human. ***EMBODY the continously improving discipline of genuine compassion.*** 
