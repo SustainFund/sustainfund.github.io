@@ -1,6 +1,10 @@
-If you actually care, then ***EMBODY genuine compassion.*** become engaged as a disciplined human ... not just a problem solver gadget or machine, but a caring, compassionate human. ***EMBODY the continously improving discipline of genuine compassion.*** 
+If you actually care, then ***EMBODY genuine compassion.*** become engaged as a disciplined human ... not just some sort of cashcow gadget or checkwriting ATM for your virtue signaling, but a caring, compassionate, head-in-the-game real human. 
+
+***EMBODY the continously improving discipline of genuine compassion.*** 
 
 # Zero Overhead Philanthropy
+
+If you are in the charitable org or church or non-profit game, ditch the idea your outfit has a monopoly on virtue -- GET SMARTER.
 
 When some problem really matters to the point where it becomes your WHY, then ***GIVE OF YOURSELF -- GIVE YOUR TIME and EXPERTISE*** Until then, *stop kidding yourself that writing checks or practicing idiot compassion will fix anything.* 
 
