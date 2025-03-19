@@ -5,7 +5,9 @@ permalink: /Questions/
 ---
 
 
-Each of these questions invites deep reflection on the [manifesto](https://sustainfund.github.io/Manifesto/)'s themes in light of scriptural wisdom and teachings. They explore the tensions between genuine compassion and performative virtue, the value of sustained disciplined action, and the complex relationship between financial resources and meaningful change.
+Each of these questions invites deep reflection on the [manifesto](https://sustainfund.github.io/Manifesto/)'s themes in light of scriptural wisdom and teachings. They explore the tensions between genuine compassion and performative virtue, the value of sustained disciplined action, and the complex relationship between financial resources and meaningful change. 
+
+{*NOTE: Of course, you are weldome to look these questions over, but after you understand the gist these, you may probably want to come up with your own questions to ponder.*}
 
 1. How does the call to "embody genuine compassion" align with James 2:14-17 on faith without works being dead, and Matthew 25:31-46 on caring for "the least of these"?
 
