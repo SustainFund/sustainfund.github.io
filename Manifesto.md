@@ -11,9 +11,13 @@ The GOOD causes out there do not primarily need your money or your funding ... t
 
 Become **engaged** as a disciplined, intelligent compassionate human ... *becoming* ***engaged*** means DAILY discipline and improvement in daily discipline.
 
-YOU get to pick the WHY driving your compassion ... WHY do you care about this cause? *WHY is it important enough to YOU that you should do something about it and basically ignore the other 37 bajillion good causes on the planet? For example, how is the collection plate at church needed to pay for the recurring Honeywell service contract on an HVAC system really any different from the needs of a crack addict who needs to experience the most exquisisite high known to humankind?*
+YOU get to pick the WHY driving your compassion ... WHY do you care about this cause? *WHY is it important enough to YOU that you should do something about it and basically ignore the other 37 bajillion good causes on the planet? For example, how is the collection plate at church needed to pay for the recurring Honeywell service contract on an HVAC system really any different from the needs of a crack addict who needs to experience the most exquisisite high known to humankind?* ***Has anyone DOGE'd the expense of your favorite church or charitable org lately?***
 
-You also get to determine what your your DAILY discipline of compassionate caring looks like and how you are going to improve upon that discipline ... you do not get to judge anyone else's why or anyone else's level of compassion ... you do not get to pass the collection plate for your causes -- if you are engaged in DAILY compassionate discipline, trust that people will be attracted to being part of the activity.
+*Becoming* ***engaged*** means DAILY discipline and improvement in all daily disciplines ... including financial discipline. This is not about your money, **IT'S ABOUT YOU!**.
+
+You are supposed to decide things for you ... but YOU have to pay attention. 
+
+Paying attention means that YOU also get to determine what your your DAILY discipline of compassionate caring looks like and how you are going to improve upon that discipline ... you do not get to judge anyone else's why or anyone else's level of compassion ... you do not get to pass the collection plate for your causes -- if you are engaged in DAILY compassionate discipline, trust that people will be attracted to being part of the activity.
 
 
 ***Be a better example. EMBODY the continously improving the DAILY discipline of genuine compassion.*** 
