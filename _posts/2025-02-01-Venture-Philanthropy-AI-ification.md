@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "AI-ifying Self-Sustaining Venture Philanthropy"
-date:   2025-01-01 4:30:00
+date:   2025-02-01 4:30:00
 categories: philanthropy
 ---
 
