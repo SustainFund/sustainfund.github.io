@@ -1,7 +1,7 @@
-If you actually care, then ***EMBODY genuine compassion.*** 
+If you actually care, then ***EMBODY genuine compassion.***  ASK [questions](https://sustainfund.github.io/Questions/) about what this means, FOR YOU.
 
-Become engaged as a disciplined, intelligent compassionate human ... becoming engaged means DAILY discipline.
+The **genuinely** GOOD causes out there do not primarily need your money or your funding ... they need YOU. {*Sure, helping out with expenses might be involved after YOU are involved and knowledgable enough to know WHY the coins might matter ... but the GOOD causes are never primarily about the money*. }
 
-YOU get to pick the WHY driving your compassion ... WHY do you care? WHY is important to YOU. 
+Become **engaged** as a disciplined, intelligent compassionate human ... *becoming* ***engaged*** means DAILY discipline and improvement in daily discipline.
 
-You also get to determine what your your DAILY discipline of compassionate caring looks like and how you are going to improve upon that discipline ... you do not get to judge anyone else's why or anyone else's level of compassion ... you do not get to pass the collection plate for your causes -- if you are engaged in DAILY compassionate discipline, trust that people will be attracted to being part of the activity.
+YOU get to pick the WHY driving your compassion ... WHY do you care about this cause?
